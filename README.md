@@ -1,0 +1,1 @@
+# Praktikum_3_2022_SS
